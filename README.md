@@ -1,0 +1,1 @@
+# amgc_actividad
